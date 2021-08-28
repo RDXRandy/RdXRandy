@@ -1,4 +1,4 @@
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fdribbble.com%2Ftags%2Fhacker_logo&psig=AOvVaw1nD05IHXKkTXPknXUPkUIs&ust=1630227532801000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCNDzkoTM0_ICFQAAAAAdAAAAABAD
+
 
 ### Hi there 👋, RDXRandy
 
